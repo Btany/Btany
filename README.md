@@ -1,0 +1,1 @@
+Graduanda em Gestão da Tecnologia da Informação, Graduada em Bacharelado em Administração e Pós Graduada em Gestão de Qualidade e Produtividade, com experiência administrativa nas áreas Financeira e Dep. Pessoal.
